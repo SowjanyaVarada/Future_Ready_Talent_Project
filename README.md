@@ -2,7 +2,7 @@
 
 Project Link : https://jolly-sand-0b9be0e10.1.azurestaticapps.net
 
-Demo Video : https://vimeo.com/718651949
+Demo Video : https://www.kapwing.com/videos/638a25164787410017379c27
 
 _______________________________________________________________________________________________________________________________________________________________________
 
