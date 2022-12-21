@@ -2,7 +2,7 @@
 
 Project Link : https://tinyurl.com/2929jusx
 
-Demo Video : https://www.kapwing.com/videos/638a25164787410017379c27
+Demo Video : https://drive.google.com/file/d/1Z3Mp7J2L6V_BIWNWXbWPsluNOKWnXGND/view?usp=sharing
 
 _______________________________________________________________________________________________________________________________________________________________________
 
